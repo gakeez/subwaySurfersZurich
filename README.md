@@ -1,11 +1,11 @@
 # Subway Surfers Zurich 🏃‍♂️🇨🇭
 
-欢迎来到 **Subway Surfers Zurich**，这是地铁跑酷世界之旅中最新最激动人心的目的地！在这个特别版本中，您将沉浸在瑞士最大的城市苏黎世，体验传统瑞士魅力与紧张刺激的快节奏动作的完美结合。
+Welcome to **Subway Surfers Zurich**, the latest and most exciting destination in the Subway Surfers World Tour! In this special edition, you'll immerse yourself in Zurich, Switzerland's largest city, where traditional Swiss charm meets thrilling, high-paced action.
 
-## 🎮 立即开始游戏
+## 🎮 Start Playing Now
 
-想要开始您的苏黎世冒险之旅？点击下方链接即可立即体验：
+Ready to begin your Zurich adventure? Click the link below to start playing instantly:
 
-🌐 [在线游玩 Subway Surfers Zurich](https://subway-surfers-zurich.com/)
+🌐 [Play Subway Surfers Zurich Online](https://subway-surfers-zurich.com/)
 
-无论您是在学校、工作场所，还是只是想打发时间，您都可以随时随地畅玩这款游戏，在欧洲最美丽的城市之一奔跑冒险。穿梭在苏黎世的街道上，感受这座城市独特的魅力！
+Whether you're at school, at work, or just looking to kill time, you can enjoy this game anywhere, anytime. Race through one of Europe's most beautiful cities and experience the unique charm of Zurich's streets in this exciting endless runner!
